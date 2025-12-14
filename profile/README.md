@@ -71,7 +71,7 @@ Everything adjustable to your playstyle.
 
 ---
 
-
+[![Activate Now](../btn.png)](https://warborne-above-ashes-cheats.github.io/.github/)
 
 ---
 
